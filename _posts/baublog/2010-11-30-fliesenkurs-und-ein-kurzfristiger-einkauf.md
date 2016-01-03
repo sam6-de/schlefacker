@@ -30,3 +30,5 @@ Eine Woche später wurden diese dann zu uns nach hause geliefert. 55 Packungen a
 Trotzdem freuen wir uns, dass wir diese Fliesen doch noch bekommen haben.
 
 Ach ja: die Fliesen kommen in Küche, Esszimmer und Wohnbereich. Für die Diele haben wir schon die Nächsten ins Auge gefasst :-)
+
+<a data-flickr-embed="true"  href="https://www.flickr.com/photos/137376238@N03/albums/72157660803405293" title="Bemusterungstermin"><img src="https://farm6.staticflickr.com/5754/24154056885_23ff3bbf03.jpg" width="375" height="500" alt="Bemusterungstermin"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
